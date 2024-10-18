@@ -1,1 +1,3 @@
-
+- 🇻🇳 : I'm from VietNam
+- ✍️ : I'm studying at HUFLIT
+- 📧 : Contact me at anhthu290804@gmail.com
